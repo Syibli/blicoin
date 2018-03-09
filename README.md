@@ -1,0 +1,2 @@
+# blicoin
+earn an everything
